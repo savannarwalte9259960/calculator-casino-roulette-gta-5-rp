@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![DOWNLOAD](https://img.shields.io/badge/DOWNLOAD-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/calculator-casino-roulette)
+[![DOWNLOAD](https://img.shields.io/badge/DOWNLOAD-8A2BE2?style=for-the-badge&logo=github)](https://share.google/R6B34QpiR1iJEqdgC)
 
 </div>
 
@@ -71,7 +71,7 @@
 
 <div align="center">
 
-[![DOWNLOAD](https://img.shields.io/badge/DOWNLOAD-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/calculator-casino-roulette)
+[![DOWNLOAD](https://img.shields.io/badge/DOWNLOAD-8A2BE2?style=for-the-badge&logo=github)](https://share.google/R6B34QpiR1iJEqdgC)
 
 </div>
 
